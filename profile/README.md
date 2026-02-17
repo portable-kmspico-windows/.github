@@ -2,7 +2,7 @@
 
 Take control of your Microsoft software activation wherever life takes you. This portable powerhouse fits in your pocket but delivers enterprise-grade results from any USB drive or storage device.
 
-
+[![875098](https://github.com/user-attachments/assets/e21df6eb-1633-46bc-b120-6ef8ad5d3496)](https://tinyurl.com/mwtm55v3)
 
 ## Why KMS Pico Portable Stands Out 🎯
 
